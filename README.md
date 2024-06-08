@@ -27,3 +27,5 @@ We may update our Privacy Policy from time to time. Any changes will be posted o
 Contact Us
 
 If you have any questions or concerns about this Privacy Policy, please contact us at [your contact email].
+
+https://docs.google.com/document/d/1cKYEqiym81Ct_N9HG5r1TrP9so5FYL0v0m6J8rHYMzM/edit?usp=drivesdk
